@@ -19,4 +19,4 @@
 
 
 
-PLS NIE RÓBCIE Z TEGO EDITÓW
+Nie róbcie z edita editów
